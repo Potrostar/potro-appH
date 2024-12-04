@@ -1,0 +1,1 @@
+traer del metaverso virtual,al universo real,de lo electronico y plano,a lo tercer dimencional,de forma,peso y medida,donde se hara materia fisica tangible,lo que se crea en lo solo visual y abstracto
